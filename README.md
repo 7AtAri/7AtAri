@@ -1,5 +1,5 @@
 
-<3 to solve real world problems 
+<3 solving real world problems 
 
 <3 visualizing 
 
